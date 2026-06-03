@@ -1,4 +1,4 @@
-# 
+# Premium DisplayFusion flujo de trabajo para Mac OS | Personalizado DisplayFusion flujo de trabajo para PC Windows. Con gestión de cookies y limpieza de historial — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
